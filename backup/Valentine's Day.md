@@ -13,4 +13,4 @@
 刻入骨髓
 
 终于有一刻能够忘记自我
-![psc (1)](https://github.com/zureealLV/zureealLV.github.io/assets/173482772/fbe2263c-0000-4446-a41e-44ec00376fa3)
+![psc (1)](https://github.com/zureealLV/zureealLV.github.io/assets/173482772/7c61b51c-5ead-4fda-9a33-da15446c5578)
